@@ -1,4 +1,4 @@
-小辣椒导航永久地址发布：https://xiaolajiao.icu
+小辣椒导航永久地址发布：https://xiaolajiaodh.cc/
 
 发送任意邮件到xiaolajiaodaohang@gmail.com，自动回复最新地址
 
